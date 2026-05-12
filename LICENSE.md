@@ -1,4 +1,4 @@
-#  
+#  attack on titan revolution automatic Script is the best attack on titan revolution Script, featuring auto-heal and auto-collect. Safe and powerful
 
 
 
